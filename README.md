@@ -1,3 +1,5 @@
+<img width="942" height="1280" alt="WhatsApp Image 2026-06-21 at 10 50 22" src="https://github.com/user-attachments/assets/daefa059-ebf0-4fe1-859c-bca6b49ce496" />
+<img width="882" height="1280" alt="WhatsApp Image 2026-06-21 at 10 50 23" src="https://github.com/user-attachments/assets/67d07001-781b-4b4c-b632-4e182d4d214e" />
 # Diatomaceous Earth Water Filter
 
 ## Overview
